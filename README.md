@@ -4,7 +4,6 @@ Denver is home to some of the best SEO agencies that help businesses improve the
 
 Here is the list of top 10:  
 1: [Denver Web Design](https://denverwebdesigncompany.us/) Company
-
 2: Volume Nine
 3: Inflow
 4: SEO Experts Denver
